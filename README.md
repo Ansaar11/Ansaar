@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **ansaar.r.h@gmail.com**
 
-- 📄 Know about my experiences [https://flowcv.com/resume/j867h9r2lt](https://flowcv.com/resume/j867h9r2lt)
+  
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
